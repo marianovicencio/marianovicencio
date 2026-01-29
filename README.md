@@ -1,6 +1,6 @@
-Hi there - Hola!👋
+Hola!👋
 
-- 🌱 I’m currently studying Biomedical Engenieering
-- 📫 How to reach me: mariano.vicencio@gmail.com
-- ⚡ Fun fact: I love playing the piano
+- 🌱 Estudio Ingeniería Civil Biomédica
+- 📫 Mi correo electronico: mariano.vicencio@gmail.com
+- ⚡ Me gusta tocar el piano
   
