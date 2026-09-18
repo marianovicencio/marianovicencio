@@ -1,6 +1,6 @@
-Hola!👋
+Hi!👋
 
-- 🦾 Estudio Ingeniería Civil Biomédica  ⋆⚕⋆
-- 📫 Mi correo electronico: mariano.vicencio@gmail.com  ˗ˏˋ꒰✉︎꒱ˊˎ˗
-- 🎹 Me gusta tocar el piano. ⊹˚♪ 𝄞𝄢₊˚⊹
+- 🦾 Im a Biomédical Engineer (Ingeniero Civil Biomédico) ⋆⚕⋆
+- 📫 Mi email is: mariano.vicencio@gmail.com  ˗ˏˋ꒰✉︎꒱ˊˎ˗
+- 🎹 Love playing the piano. ⊹˚♪ 𝄞𝄢₊˚⊹
   
